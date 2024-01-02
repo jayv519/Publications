@@ -1,2 +1,2 @@
 # Publications
-Peer-Reviews Journal Publications
+Peer-Reviewed Journal Publications
